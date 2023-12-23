@@ -1,2 +1,0 @@
-# Oracle-copia-backt
-psd
